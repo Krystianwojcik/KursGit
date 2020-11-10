@@ -1,1 +1,1 @@
-# KursGit
+# Paragon z warzywniaka
